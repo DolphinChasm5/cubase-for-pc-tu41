@@ -1,4 +1,4 @@
-# 
+# exclusive Cubase for PC | Cubase for Windows Addon | time-stretching + automation is the best Cubase for PC | Cubase for Windows addon, featuring time-stretching and automation.
 
 
 
